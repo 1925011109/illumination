@@ -1,4 +1,4 @@
-# illumination
-DO NOT ADMIRE, RESPECT OR LOVE :: ANYONE, ANYTHING
+# 이성과 이유
+가변적으로,
 
 test.
